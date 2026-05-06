@@ -3,7 +3,7 @@
 
 
 
-<img width="736" height="743" alt="J_ Robert Oppenheimer on April 19, 1958" src="https://github.com/user-attachments/assets/87c9236c-5c0d-43c3-b3cf-1a73f318d6aa" />
+<img width="400" height="400" alt="J_ Robert Oppenheimer on April 19, 1958" src="https://github.com/user-attachments/assets/87c9236c-5c0d-43c3-b3cf-1a73f318d6aa" />
 
 
 
