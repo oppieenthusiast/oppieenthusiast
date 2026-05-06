@@ -3,7 +3,7 @@
 
 
 <p align="center">
-  <img src="<img width="736" height="736" alt="Oppenheimer Cillian Murphy Behind The Scene" src="https://github.com/user-attachments/assets/6280053a-6609-4a30-b7e3-abdd44d492cf" />" />
+  <img src="https://www.pinterest.com/pin/1053772012812066919/" />
 </p>
 
 
