@@ -2,16 +2,10 @@
 -
 
 
-<!--
-Source - https://stackoverflow.com/a/12118349
-Posted by waldyr.ar, modified by community. See post 'Timeline' for change history
-Retrieved 2026-05-05, License - CC BY-SA 4.0
--->
-
-<p align="center">
-  <img src="<img width="736" height="900" alt="WHEN DILF CLIMBS I CRAWL-" src="https://github.com/user-attachments/assets/f5001bde-1d69-45ae-88a6-527d97a994b7" />
-" />
+<p align="center" width="100%">
+    <img width="33%" src="https://i.sstatic.net/RJj4x.png">
 </p>
+
 
 
 
