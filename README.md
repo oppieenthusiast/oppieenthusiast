@@ -9,7 +9,8 @@ Retrieved 2026-05-05, License - CC BY-SA 4.0
 -->
 
 <p align="center">
-  <img src="http://some_place.com/image.png" />
+  <img src="<img width="736" height="900" alt="WHEN DILF CLIMBS I CRAWL-" src="https://github.com/user-attachments/assets/f5001bde-1d69-45ae-88a6-527d97a994b7" />
+" />
 </p>
 
 
