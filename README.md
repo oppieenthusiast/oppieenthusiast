@@ -4,7 +4,7 @@
 
 
 <p align="center" width="100%">
-    <img width="33%" src="file:///home/c/Downloads/Oppenheimer%20Cillian%20Murphy%20Behind%20The%20Scene.jpeg">
+    <"img width="33%" src="file:///home/c/Downloads/Oppenheimer%20Cillian%20Murphy%20Behind%20The%20Scene.jpeg">
 </p>
 WHERE THE FUCK IS MY IMNAGE
 
