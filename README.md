@@ -3,13 +3,7 @@
 
 
 
-
-<p align="center" width="100%">
-    <img width="33%" src="file:///home/c/Downloads/J_%20Robert%20Oppenheimer%20on%20April%2019,%201958.jpeg">
-</p>
-
-WHERE THE FUCK IS MY IMNAGENWHY DOES IT HATE ME PLS GITHUB I NEED THIIIIIIIIIS
-
+<img width="736" height="743" alt="J_ Robert Oppenheimer on April 19, 1958" src="https://github.com/user-attachments/assets/87c9236c-5c0d-43c3-b3cf-1a73f318d6aa" />
 
 
 
