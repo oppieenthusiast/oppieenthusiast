@@ -4,10 +4,10 @@
 
 
 <p align="center" width="100%">
-    <"img width="33%" src="file:///home/c/Downloads/Oppenheimer%20Cillian%20Murphy%20Behind%20The%20Scene.jpeg">
+    <img width="33%" src="file:///home/c/Downloads/J_%20Robert%20Oppenheimer%20on%20April%2019,%201958.jpeg">
 </p>
-WHERE THE FUCK IS MY IMNAGE
 
+WHERE THE FUCK IS MY IMNAGE
 
 
 
