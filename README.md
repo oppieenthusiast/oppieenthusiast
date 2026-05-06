@@ -4,6 +4,10 @@
 
 
 
+<p align="center" width="100%">
+    <img width="33%" src="file:///home/c/Downloads/J_%20Robert%20Oppenheimer%20on%20April%2019,%201958.jpeg">
+</p>
+
 WHERE THE FUCK IS MY IMNAGENWHY DOES IT HATE ME PLS GITHUB I NEED THIIIIIIIIIS
 
 
