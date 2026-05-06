@@ -1,6 +1,9 @@
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Playfair+Display&pause=1000&color=3E3E3E&center=true&vCenter=true&width=435&lines=%22Can+you+hear+the+music+Oppenheimer%3F%22)](https://git.io/typing-svg)
--
-<h1 align="center">[![Typing SVG](https://readme-typing-svg.demolab.com?font=Playfair+Display&pause=1000&color=3E3E3E&center=true&vCenter=true&width=435&lines=%22Can+you+hear+the+music+Oppenheimer%3F%22)](https://git.io/typing-svg)</h1>
+
+<p align="center">
+  <marquee>[![Typing SVG](https://readme-typing-svg.demolab.com?font=Playfair+Display&pause=1000&color=3E3E3E&center=true&vCenter=true&width=435&lines=%22Can+you+hear+the+music+Oppenheimer%3F%22)](https://git.io/typing-svg)
+</marquee>
+</p>
 
 <p align="center" width="100%">
     <img width="33%" src="file:///home/c/Downloads/Oppenheimer%20Cillian%20Murphy%20Behind%20The%20Scene.jpeg">
