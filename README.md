@@ -3,7 +3,14 @@
 
 
 <p align="center">
-  <img src="https://imgur.com/fqA1LiC" />
+  <img src="<!--
+Source - https://stackoverflow.com/q/61071158
+Posted by Rafael Borja, modified by community. See post 'Timeline' for change history
+Retrieved 2026-05-05, License - CC BY-SA 4.0
+-->
+
+<a href="https://stackoverflow.com/"><img src="RELATIVE_PATH_TO_IMAGE"></img></a>
+" />
 </p>
 
 
