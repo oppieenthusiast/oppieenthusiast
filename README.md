@@ -23,5 +23,14 @@ oomfs/friends below. YAAAAY
 @totaldramas as the Tree/Treemarker enthusiast and yume👀👀👀👀              
 @unpleasant-like as the Unpleasant enthusiast                 
 @xathetic as the Soap enthusiast                          
-idk who else nominate someone in the strawpage ok bye                              
+hi ill add more frfiends later                             
+                   
+
+
+
+users!!!!!!                 
+@orchestrafuI as the Artful/Mequot enthusiast            
+@SONNELLINOENTHUSIAST as im guessing here the Mafioso enthusiast             
+@planetlordd as the Planetlord enthusiast             
+@TheHacker as the ThatMob enthusiast                          
 b4 u nominate note that i may add multiple people for someones enthusiast/multiple chars that people are an enthusiast of ok. dont be mean abt it or i lazer beam you to de ath
