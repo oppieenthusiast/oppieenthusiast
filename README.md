@@ -1,4 +1,4 @@
-FUCK THE JSCHLATT THEME IM GOING BACK TO MY OPPENHEIMER ROOTS
+FUCK THE JSCHLATT THEME IM GOING BACK TO MY OPPENHEIMER ROOTS                    
 updates when i feel like it                       
 peiople on dis are below the image ok
 
