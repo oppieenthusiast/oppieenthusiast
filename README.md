@@ -33,4 +33,5 @@ users!!!!!!
 @SONNELLINOENTHUSIAST as im guessing here the Mafioso enthusiast             
 @planetlordd as the Planetlord enthusiast             
 @TheHacker as the ThatMob enthusiast                          
-b4 u nominate note that i may add multiple people for someones enthusiast/multiple chars that people are an enthusiast of ok. dont be mean abt it or i lazer beam you to de ath
+b4 u nominate note that i may add multiple people for someones enthusiast/multiple chars that people are an enthusiast of ok. dont be mean abt it or i lazer beam you to de ath             
+also no im not doing the "prettiest ponies" or whatevcer everyones ponies are pretty everyones cool dont ask
