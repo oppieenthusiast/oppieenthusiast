@@ -1,1 +1,1 @@
-ok im making this schlatt themed eventually. shclip and schlide
+FUCK THE JSCHLATT THEME IM GOING BACK TO MY OPPENHEIMER ROOTS
