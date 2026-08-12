@@ -24,6 +24,7 @@ burp
 </details>
  <details>
   <summary>my old enthusiast claim smirks</summary>
-honorary host addon @silly-dotcom as the Oppenheimer enthusiast             
+honorary host addon @silly-dotcom as the Oppenheimer enthusiast      
+            
 burp                             
 </details>
