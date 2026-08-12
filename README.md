@@ -1,11 +1,9 @@
 hi im not planning to do this anymore out of just pure lazyness so. if you wanted to join sorry brah
+also this is spam follow/alt now buuurp
 
 
 <img width="200" height="400" alt="1017180265844930843" src="https://github.com/user-attachments/assets/6f81c37d-8db3-4d62-9f7d-67d615c95ff0" />
 
- 
- 
- 
  
  
 honorary host addon @silly-dotcom as the Oppenheimer enthusiast
