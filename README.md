@@ -10,11 +10,16 @@ also this is spam follow/alt now buuurp
  
  <details>
   <summary>old oomfs/friends enthusiast thing</summary>
-  @Gamblersi as the Chance enthusiast              
-@lostcxuse as the Nezoshoki, Sharpness, 2swag and Ashton, Boomie, ect enthusiast                  
-@totaldramas as the Tree/Treemarker enthusiast and yume👀👀👀👀              
-@unpleasant-like as the Unpleasant enthusiast                 
-@xathetic as the Soap enthusiast                          
+  @Gamblersi as the Chance enthusiast   
+          
+@lostcxuse as the Nezoshoki, Sharpness, 2swag and Ashton, Boomie, ect enthusiast    
+        
+@totaldramas as the Tree/Treemarker enthusiast and yume👀👀👀👀    
+        
+@unpleasant-like as the Unpleasant enthusiast        
+         
+@xathetic as the Soap enthusiast    
+        
 burp                             
 </details>
  <details>
