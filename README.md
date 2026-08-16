@@ -1,15 +1,25 @@
-hi              
-its me the justice soul SIGN MY FUCKING ATABOOK ITS DRY
 
-<img width="200" height="600" alt="LazyJanitor goons to Flowery !! (NOT CLICKBAIT) 🤯🤯🤯🤯🤯🤯🤯🤯🤯" src="https://github.com/user-attachments/assets/11c9c6c8-dc9a-4e54-bcb8-45bc5956d94f" />
+<div align="center">
+  <img src="https://magma.com/api/message/file/6a810e4503dcd194af674a4b"
+</div>
+
+  <p align="center">
+  kaiser , kai , oppie
+</p>
+
  
-  
+  <p align="center">
+c*h always enc
+</p>
  
+ <p align="center">
+sign my ata
+</p>
  
  
  
  <details>
-  <summary>old oomfs/friends enthusiast thing</summary>
+  <summary>  𑣲.</summary>
 @Gamblersi as the Chance enthusiast   
                        
 @lostcxuse as the Nezoshoki, Sharpness, 2swag and Ashton, Boomie, ect enthusiast    
@@ -23,7 +33,7 @@ its me the justice soul SIGN MY FUCKING ATABOOK ITS DRY
 burp                             
 </details>
  <details>
-  <summary>my old enthusiast claim smirks</summary>
+  <summary>  𑣲.</summary>
 honorary host addon @silly-dotcom as the Oppenheimer enthusiast      
             
 burp                             
